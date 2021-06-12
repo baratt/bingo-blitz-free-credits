@@ -1,2 +1,3 @@
-# free-credits
+# bingo blitz free credits
+bingo blitz free credits[https://bingoblitzfreecredits.xyz/]
 bingo blitz Quickly collect Bingo blitz free credits,coins,bonus now and enjoy the freebies. The freebies gifts and links for bingo blitz. No need for any survey or registration. Enjoy this game on Android, and iOS,  Facebook.  Collect bingo blitz free credits daily. A great entertaining and addicting game, good fast gameplay. The extras and collections are super fun to complete.  It has everything Bingo, Slots, Free daily tournaments, collections to complete, and above all it's free! The graphics are constantly being updated for the greater good, and the best of all is the social interactions. You can chat &amp; trade while your playing just from the chat rooms. Make Bingo Buddies, Good stuff.
